@@ -6,5 +6,5 @@ Meu nome é José Gabriel
 
  ### Você pode entrar em contato comigo através do email jose.gabriel.andrade@escola.pr.gov.br
 
-  ![](https://tenor.com/pt-BR/view/muda-jjba-jojo-the-world-punches-gif-15013939)
+![](https://tenor.com/pt-BR/view/ora-jjba-jojo-star-platinum-gif-15013935)
   
