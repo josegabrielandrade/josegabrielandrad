@@ -1,4 +1,4 @@
-# eae bem vindo ao meu perfil! 😑
+### eae bem vindo ao meu perfil! 😑
 
 Meu nome é José Gabriel
 - sou aluno do 1 ano do ensino médiio;
@@ -6,5 +6,5 @@ Meu nome é José Gabriel
 
  ### Você pode entrar em contato comigo através do email jose.gabriel.andrade@escola.pr.gov.br
 
-  ![](https://tenor.com/pt-BR/view/dio-gif-19742739)
+  ![](https://tenor.com/pt-BR/view/mandom-cicada-oslad-flaryflare-souphacker-gif-18367182)
   
