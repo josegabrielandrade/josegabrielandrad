@@ -6,7 +6,4 @@ Meu nome é José Gabriel
 
  ### Você pode entrar em contato comigo através do email jose.gabriel.andrade@escola.pr.gov.br
 
-  ![](https://media.tenor.com/ev_fnE75yV8AAAAC/daft-punk.gif)
-
-  
-  ![](https://media.tenor.com/IMo5BKgfRx8AAAAC/serj-serj-tankian.gif)
+  ![](https://media.tenor.com/ev_fnE75yV8AAAAC/daft-punk.gif) ![](https://media.tenor.com/IMo5BKgfRx8AAAAC/serj-serj-tankian.gif)
